@@ -9,4 +9,4 @@ I'm looking to meet fellow Data lovers! How are you making a difference in the w
 
 FUN FACT ABOUT ME: I sew on my free time and I'm currently in the process of making my own wardrobe. 
 
-Thank you for visiting my page, and hope you follow me on my journey. 
+Thank you for visiting my page, and hope you follow me on my journey. :smiley:
